@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sauby
-- 👀 I’m interested in Web Development and game designing.
+- 👀 I’m interested in Web Development.
 - 🌱 I’m currently learning everything that could my works more better and beautiful.
 - 💞️ I’m looking to collaborate on here buddy.
 - 📫 How to reach me just email me or you can contact from here too.
